@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Vinicius Freitas Thiago 😁
+## Bem-vindo(a) ao perfil do Vinicius TFreitas 😁
 
  <div>
    <a href="https://github.com/Vinicius-Fthiago">
